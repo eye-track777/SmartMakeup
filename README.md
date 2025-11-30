@@ -24,7 +24,7 @@ wrapped in **Smart Makeup™** products or integrated into **IR safety glasses**
 
 > _“Hold wink to charge → bar fills → light toggles – in one continuous shot.”_
 
-[(You can link your TikTok / Loom / MP4 here.)](https://www.tiktok.com/@michaelhundelt/video/7578542398205168926)
+(https://www.tiktok.com/@michaelhundelt/video/7578542398205168926)
 
 ---
 
